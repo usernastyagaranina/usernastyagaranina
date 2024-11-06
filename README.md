@@ -8,6 +8,7 @@ A motivated and eager software tester with hands-on experience in functional and
 
 - 📫 How to contact me: [![LinkedIn Badge](https://img.shields.io/badge/-@anastasia-garanina-blue?style=flat&logo=LinkedIn&logoColor=white)](https://www.linkedin.com/in/anastasia-garanina/) [![Gmail Badge](https://img.shields.io/badge/-Gmail-red?style=flat&logo=Gmail&logoColor=white)](mailto:garaninaa20@gmail.com)
 
+[MY CV](https://vk.com/doc473755092_682223807?hash=9zPG4LuxIyqz7XL65G3HpQOzWZln7mkLqN0NC6QWkIs&dl=tSYkQ4pQCZWF6zOOgCTPSvOgojWf8LpnTsmME9E1dx4&from_module=vkmsg_desktop)
 ---
 
 ### 🤝 Social media:
